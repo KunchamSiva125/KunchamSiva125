@@ -8,7 +8,7 @@ Email Me 👉 ✉️ shivak125025@gmail.com 😊😊
 - 🔭 **I’m currently studying at:** KL University
 - 🌱 **I’m currently Specializing in:** CSE- Cloud Native Software Engineering
 - 👯 **I’m Graduating in:** 2027
-- 📫 **How to reach me:** shivak125025@gmail.com
+- 📫 **How to reach me:** kunchamsiva24@gmail.com
 - 😄 **Pronouns:** Siva
 - ⚡ **Fun fact:** I Love Learning and Exploring
 
